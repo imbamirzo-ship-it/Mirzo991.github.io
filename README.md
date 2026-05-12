@@ -1,1 +1,1 @@
-# MirzoHard.github.io
+# MirzoHard
