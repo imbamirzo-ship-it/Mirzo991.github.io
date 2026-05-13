@@ -1,1 +1,1 @@
-# Mirzo991.hard.io
+# Mirzo991.github.io
